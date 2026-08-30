@@ -9,6 +9,6 @@ $${\normalsize\color{#6C1714}\textbf{Besides Minecraft Horror Mods I like Black 
 $${\normalsize\color{#6C1714}\textbf{ in general, Creatures Of Sonaria, Subnautica, SFAWTDE/DAWTDE, WPEOIF(mc arg), Minecraft args in general,}}$$
 $${\normalsize\color{#6C1714}\textbf{ Phighting, Animal Hospital, Construction and many more..}}$$<br>
 $${\normalsize\color{#6C1714}\textbf{Also please IWC and W2I because I'm a 'shy' person and yeah I'm scared of saying something weird accidentaly..}}$$
-$${\normalsize\color{#6C1714}\textbf{I love Shadowknocker, Lookity and HyperHammer/Banlaser..}}$$
+$${\normalsize\color{#6C1714}\textbf{I love Shadowknocker and HyperHammer/Banlaser..}}$$
 
 STILL A WIP
