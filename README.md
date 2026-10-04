@@ -11,4 +11,9 @@ $${\normalsize\color{#6C1714}\textbf{ Phighting, Animal Hospital, Construction, 
 $${\normalsize\color{#6C1714}\textbf{Also please IWC and W2I because I'm a 'shy' person and yeah I'm scared of saying something weird accidentaly..}}$$
 $${\normalsize\color{#6C1714}\textbf{I love Shadowknocker and HyperHammer/Banlaser..}}$$
 
+
+<p align="center">
+<img src="something.png" width="800">
+
+
 STILL A WIP
